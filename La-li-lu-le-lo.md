@@ -1,5 +1,5 @@
 THE EPIC PRANK:
-
+d
 Paint is a massive industry, and anywhere between 48-50 million tonnes are made a year. However, there is one outlier: White. 
 Although not making up 70% of all paint commercially availlable, white or almost white paint is 70% of the consumption. 
 This is because white paint is incredibly important for making other colours. So, of the fifty million tonnes of paint, we can expect
